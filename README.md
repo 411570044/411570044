@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @411570044
-- 👀 I’m interested in playing Call Of Duty.
+- 👀 I’m interested in playing Call of Duty.
 - 🌱 I’m currently learning coding.
 - 📫 zhangwanxin911@gmail.com
 
